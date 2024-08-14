@@ -1,7 +1,8 @@
 # Subdomain Takeover POC
-dxwdssdd
+dxwdssddssss
 dwdwdw
 sws
 sscsccs
-ssdwdfqwefeqwweddddd
+
 sss
+sssss
